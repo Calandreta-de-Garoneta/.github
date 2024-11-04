@@ -1,2 +1,2 @@
-## Espace des codes de la Calendreta de Garoneta
+## Espace des codes de la Calandreta de Garoneta
 
